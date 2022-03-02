@@ -1,4 +1,2 @@
 # practice-repo
 
-aoiwjfoiawjeifawogwefj
-aowiejfoiwjegfawogj
